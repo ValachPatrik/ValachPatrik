@@ -1,4 +1,4 @@
-# 🔭 About Me:
+# 🚀 About Me:
 Currently studying at TUM.<br>
 
 
