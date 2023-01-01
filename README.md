@@ -1,5 +1,5 @@
 # 🚀 About Me:
-Currently studying at TUM.<br>
+Currently studying at TUM - Technische Universität München.<br>
 
 
 ## 🌐 Socials:
