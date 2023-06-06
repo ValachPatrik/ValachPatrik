@@ -1,5 +1,6 @@
 # 🚀 About Me:
-Currently studying at TUM - Technische Universität München.<br>
+Student at TUM - Computer Science<br>
+Spacefligh and Aviation enthusiast<br>
 
 
 ## 🌐 Socials:
